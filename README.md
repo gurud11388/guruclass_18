@@ -1,0 +1,1 @@
+# guruclass_18
